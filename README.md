@@ -1,6 +1,6 @@
 # aaa
 aaa aaa aaa
 
-bomb bomb bomb!
+lol lol
 
 vowwww!
